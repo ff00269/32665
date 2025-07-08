@@ -20,4 +20,4 @@
 总的来说，尽管日本AV免费资源在网上广泛存在，但要找到一个安全、高清、无广告的资源站并不容易。用户只要选择正规站点，合理使用安全工具，就可以享受到流畅、安全的观看体验。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff00269/32665 ）</span>
